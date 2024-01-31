@@ -11,7 +11,7 @@ I'm drawn to data analytics and visualization for their ability to unearth insig
 
 ❣️ I love - Reading, singing, gaming. 
 
-🌟 Passionate learner, Hardworking, Self motivated.
+🌟 Passionate learner, Hardworking, Self motivated.<br/>
 <br/>
 **🔗Connect with me at:<br/>**
 
