@@ -14,7 +14,7 @@ I'm drawn to data analytics and visualization for their ability to unearth insig
 🌟 Passionate learner, Hardworking, Self motivated.
 
 🔗Connect with me at-
- https://www.linkedin.com/in/erica-pinto-147902268/   
+ ![LinkedIn_logo_initials](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/e5b267ef-f730-43df-ba52-71c0a47c6a48) https://www.linkedin.com/in/erica-pinto-147902268/   
 
 Email: ericapinto47@gmail.com
 
