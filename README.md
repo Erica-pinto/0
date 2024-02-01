@@ -14,14 +14,14 @@ I'm drawn to data analytics and visualization for their ability to unearth insig
 🌟 Passionate learner, Hardworking, Self motivated.<br/>
 <br/>
 <br/>
-**🔗Connect with me at:<br/>**
+### **🔗Connect with me at:<br/>**
 
 ![360_F_395391650_6LfU41V5A4WIhdTis899OaF7wXVgThgP](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/a1006237-c088-4c18-b12b-146ec2d92442) https://www.linkedin.com/in/erica-pinto-147902268/   
 
 ![88e14cc7e7fcbb0e0e09de26cec86c61](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/1b8a781c-90e4-42b3-b7fe-a74412c24a33) ericapinto47@gmail.com <br/>
 <br/>
 <br/>
-**Tools and Languages:** <br/>
+### **Tools and Languages:** <br/>
 ![MySQL-00000F_style=for-the-badge logo=mysql logoColor=white](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/1415779c-4988-40ef-a300-0c1226f7bbd0) 
 ![68747470733a2f2f696d672e736869656c64732e696f2f62616467652f707974686f6e2d3336373041303f7374796c653d666f722d7468652d6261646765266c6f676f3d707974686f6e266c6f676f436f6c6f723d666664643534](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/29049686-5170-494c-ac41-f9b2c73d03a1)
 ![Microsoft_Excel-217346_style=for-the-badge logo=microsoft-excel logoColor=white](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/33f7c66d-62f2-44fc-aca3-f3c5a32ea45d)
