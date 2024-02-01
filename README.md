@@ -13,13 +13,11 @@ I'm drawn to data analytics and visualization for their ability to unearth insig
 
 🌟 Passionate learner, Hardworking, Self motivated.<br/>
 <br/>
-<br/>
 ### **🔗Connect with me at:<br/>**
 
 ![360_F_395391650_6LfU41V5A4WIhdTis899OaF7wXVgThgP](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/a1006237-c088-4c18-b12b-146ec2d92442) https://www.linkedin.com/in/erica-pinto-147902268/   
 
 ![88e14cc7e7fcbb0e0e09de26cec86c61](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/1b8a781c-90e4-42b3-b7fe-a74412c24a33) ericapinto47@gmail.com <br/>
-<br/>
 <br/>
 ### **Tools and Languages:** <br/>
 ![MySQL-00000F_style=for-the-badge logo=mysql logoColor=white](https://github.com/Erica-pinto/Erica-Pinto/assets/131152857/1415779c-4988-40ef-a300-0c1226f7bbd0) 
