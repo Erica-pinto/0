@@ -1,4 +1,4 @@
-**Hey and Welcome, I'm Erica**👋
+### Hey and Welcome, I'm Erica👋
 
 **About me:**
 
